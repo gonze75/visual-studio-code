@@ -1,0 +1,4 @@
+- Dedica un día de la semana para la preparación y cocinado de los alimentos. Puedes dividir las tareas para hacerlo más manejable.
+- Utiliza contenedores aptos para congelar y etiqueta cada comida con la fecha de preparación para un fácil seguimiento.
+- Al descongelar, deja que la comida se descongele gradualmente en el refrigerador durante la noche antes de calentarla.
+- Aprovecha las sobras para almuerzos o cenas rápidas.
